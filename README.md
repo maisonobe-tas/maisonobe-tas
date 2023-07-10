@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @maisonobe-tas
+- 👀 I’m interested in space flight dynamics and mathematics
